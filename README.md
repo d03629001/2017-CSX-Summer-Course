@@ -1,1 +1,1 @@
-# 2017-CSX-Summer-Course
+# 2017SUMMERCSX.github.io
